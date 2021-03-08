@@ -6,7 +6,7 @@
 
 ​		:school: Graduated from ***KOREA DIGITAL MEDIA HIGH SCHOOL***
 
-​		:school: Graduated from ***University of Seoul***, ***Bachelor of Science in Computer Science***   
+​		:school: Graduated from ***Incheon National University***, ***Bachelor of Electrical Engineering and Computer Engineering Double Major***   
 
 
 
